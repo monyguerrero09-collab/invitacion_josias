@@ -11,7 +11,7 @@
 
 📸 El festejado
 
-"Josías" (josias.jpg)
+
 
 🏁 Confirmar asistencia
 
